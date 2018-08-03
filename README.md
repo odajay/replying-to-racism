@@ -12,8 +12,8 @@ Repository of brilliant takes explaining and deconstructing insensitive and disc
 ## Denials
 This part focuses on gaslighting and other myth around “a post-racial world” where racism is not a problem anymore.
 
-- James Baldwin replying to an academic refuting the importance of color in the social discourse “_So why must we always concentrate on color?_”
-https://youtu.be/_fZQQ7o16yQ?t=1m21s
+- [So why must we always concentrate on color?](https://youtu.be/_fZQQ7o16yQ?t=1m21s) [ᴠɪᴅᴇᴏ] - James Baldwin replying to an academic refuting the importance of color in the social discourse 
+
 
 ## License
 
