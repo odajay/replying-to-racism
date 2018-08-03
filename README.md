@@ -2,7 +2,7 @@
 
 Repository of brilliant takes explaining and deconstructing insensitive and discriminative racist or ethnics arguments.
 
-<sub>Note: Unfortunately, a good amount of racist or culturally insensitive will not care about your arguments. Some people live in a sandbox impermeable to arguments and empathy. The goal of this list is not to change their mind. It is to not leave their arguments roaming around uncontested. It is also to force critical thinking from the observers to the discussion you are taking part in.</sub>
+<sub>Note: Unfortunately, a good amount of racist or culturally insensitive will not care about your arguments. Some people live in a sandbox impermeable to arguments and empathy. The goal of this list is not to change their mind. It is to not leave their arguments roaming around uncontested. It is also to force critical thinking from the observers of the discussions you are taking part of.</sub>
 
 ## Contents
 
