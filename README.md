@@ -8,7 +8,7 @@ Repository of brilliant takes explaining and deconstructing insensitive and disc
 
 - [Denial](#denial)
 - [Reverse Victimization](#reverse-victimization)
-- [Micro-aggressions](#micro-aggressions]
+- [Micro-aggressions](#micro-aggressions)
 
 
 ## Denial
